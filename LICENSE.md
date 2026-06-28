@@ -1,4 +1,4 @@
-# 
+# Leve Aseprite modelos para Mac OS | Premium Aseprite modelos para PC Windows. Com pincéis personalizados e pincel de cura — otimizado para máximo desempenho em cada plataforma.
 
 
 
